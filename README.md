@@ -2,4 +2,6 @@
 
 I'm interested in Competitive Programming, Maths, ML/AI, Quantitative Finance, Trading.
 
-You can reach out to me on email - 111pruthvi111@gmail.com
+Reach out to me at
+Email - 111pruthvi111@gmail.com
+LinkedIn - www.linkedin.com/in/pruthvi-raju-b1baaa160
